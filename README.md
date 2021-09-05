@@ -4,5 +4,5 @@
 
 * :telescope: I'm currently working on grasping and enlightening myself!
 * :seedling: I’m currently absorbing knowledge!
-*  Goals this year: Learn better programming skills and contribute more!
+*  💞️: Learn better programming skills and contribute more!
 * :zap: Fun Fact: Love music and food and introspecting on all stuffs that strikes an unusual quality!
