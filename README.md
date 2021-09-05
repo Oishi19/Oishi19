@@ -6,3 +6,4 @@
 * :seedling: I’m currently absorbing knowledge!
 *  💞️: Learn better programming skills and contribute more!
 * :zap: Fun Fact: Love music and food and introspecting on all stuffs that strikes an unusual quality!
+* ✨: I am working on Machine Learning projects and simultaneously balancing college projects
